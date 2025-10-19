@@ -14,5 +14,5 @@ cause this:
 https://github.com/pandaboy6621  
 put this:  
 https://lmddgtfy.net/?q=computer%2Fserver%2Fthing%20connected%20via%20ethernet%20to%20my%20router  
-in my:  
+in my this:  
 https://www.imdb.com/title/tt0412142/  
